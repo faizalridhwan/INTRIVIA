@@ -10,3 +10,6 @@ Selama mengikuti kegiatan intrivia, saya mulai belajar banyak hal, salah satunya
 
 ## Kesan Pesan Cluster 9 Sejauh Ini 
 Cluster 9 orangnya baik-baik. Sejauh ini aman-aman aja dari awal intriv sampai sekarang. Kakak fasilnya, yaitu kak Haidar dan kak Sakha juga baik.
+
+## Harapan Kuliah 
+Harapan saya selama kuliah adalah saya dapat meningkatkan skill, baik itu skill yang saya pelajari saat di SMK maupun yang sudah saya pelajari sendiri sebelumnya.
